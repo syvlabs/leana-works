@@ -4,4 +4,4 @@
 
 I am the best!
 
-[Happy Birthday to me!](/happy-birthday)
+[🎉Happy Birthday to me!](/happy-birthday)
