@@ -1,4 +1,4 @@
-# Leana Works!
+# Leana Bince
 
 **Hello! I'm Lei.**
 
