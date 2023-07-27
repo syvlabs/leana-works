@@ -2,7 +2,7 @@
 
 **Dear Dearneds,**
 
-I just want to say that I'm so proud of you on your 15th birthday! 🎉
+I just want to say that I'm so proud of you on your birthday! 🎉
 
 I've seen you go through so much, learn so much, and achieve so much!
 
